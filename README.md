@@ -19,4 +19,4 @@ Featured Project
 Let's Connect
 - Platform: [showgate.ng](https://showgate.ng)
 - Email: mandul@showgate.ng
-- Instagram: [@mandul_johnson](https://instagram.com/mandul_johnson)
+- Instagram: [@mandul_johnson](https://instagram.com/mandul_johnson).
